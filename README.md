@@ -1,8 +1,7 @@
-- 👋 oii, sou a @manuellach
-- 👀 Estou interessado em aprender tudo e mais um pouco
+- 👋 oii, sou a Manuella
+- 👀 Estou interessada em aprender tudo e mais um pouco
 - 🌱 Estou aprendendo atualmente
-- 💞️ Estou procurando colaborar em
-- 📫 Como entrar em contato comigo por aq ou na escola 
+- 💞️ Estou procurando colaborar 
 - 😄 Pronomes: ela dela 
 - ⚡ Curiosidade: quero apreder muitas coisas para minha vida profisonal 
 
